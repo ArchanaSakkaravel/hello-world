@@ -4,5 +4,5 @@ Archana here, I would like to learn something new, so I choose Github. Hope here
 
 Github incresed my curiosity on program on the first day of learning itself.
 
-Thanks.
+Thanks,
 Archana
